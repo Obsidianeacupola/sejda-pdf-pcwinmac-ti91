@@ -1,4 +1,4 @@
-# 
+# New Sejda PDF add-ons for Mac OS | Ultimate Sejda PDF add-ons for PC Windows. Featuring deduction finder and expense tracking — optimized for maximum performance on every platform.
 
 
 
